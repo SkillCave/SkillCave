@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Skillcave
-- 👀 I’m interested in teaching all minds of computer languages
+- 👀 I’m interested in teaching all kinds of computer languages
 - 🌱 I’m currently trying to help my all student.
 - 📫 Subscribe to my Youtube Channel Skill Cave
 
